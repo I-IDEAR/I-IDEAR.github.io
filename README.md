@@ -1,1 +1,0 @@
-# I-IDEAR.github.io
